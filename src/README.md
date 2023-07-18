@@ -8,5 +8,4 @@ From mastering technical and industry-specific skills to building a strong profe
 
 Whether you're just starting out in your career or looking to take the next step towards promotion success, this book has something to offer. By learning from the best in the industry and applying proven strategies and techniques to your own career, you can position yourself for success and achieve your career goals.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
