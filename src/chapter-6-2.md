@@ -1,4 +1,4 @@
-Chapter: Building Change Management and Persuasion Skills
+Building Change Management and Persuasion Skills
 =========================================================
 
 Introduction

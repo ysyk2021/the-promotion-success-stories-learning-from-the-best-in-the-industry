@@ -1,4 +1,4 @@
-Chapter: The Challenges and Obstacles that Can Arise when Pursuing Promotion Success
+The Challenges and Obstacles that Can Arise when Pursuing Promotion Success
 ====================================================================================
 
 Introduction

@@ -1,4 +1,4 @@
-Chapter: Strategies for Staying Motivated and Engaged in the Promotion Success Journey
+Strategies for Staying Motivated and Engaged in the Promotion Success Journey
 ======================================================================================
 
 Introduction
