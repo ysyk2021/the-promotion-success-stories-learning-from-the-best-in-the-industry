@@ -3,7 +3,6 @@
 - [Introduction](README.md)
   - [Explanation of the importance of learning from successful promotions in achieving career growth](chapter-1-1.md)
   - [Overview of the benefits of studying promotion success stories](chapter-1-2.md)
-  - [Brief on how the book will help readers learn from the best in the industry to advance their own careers](chapter-1-3.md)
 - [Chapter 1: Understanding the Elements of Successful Promotions](chapter-2.md)
   - [Understanding what it means to have a successful promotion](chapter-2-1.md)
   - [Techniques for cultivating a mindset towards career advancement and promotion](chapter-2-2.md)
