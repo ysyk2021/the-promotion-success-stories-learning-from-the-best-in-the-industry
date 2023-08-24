@@ -1,5 +1,3 @@
-Chapter 1: Understanding the Elements of Successful Promotions
-==============================================================
 
 Understanding What It Means to Have a Successful Promotion
 ----------------------------------------------------------
