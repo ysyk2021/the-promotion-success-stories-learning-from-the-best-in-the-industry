@@ -33,3 +33,4 @@
   - [Tips for reframing failures and setbacks as opportunities for learning and growth](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
